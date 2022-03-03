@@ -1,1 +1,1 @@
-This is my way of Thinking Fast And Slow on variety of topics.
+Come here and rummage for knowledge
